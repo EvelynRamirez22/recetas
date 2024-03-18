@@ -1,2 +1,2 @@
 # recetas
-Repositor de recetas de cocina.
+Repositor de recetas de cocinaaa.
